@@ -1,0 +1,2 @@
+- GitHub: https://github.com/jgilbrook
+- LinkedIn: [Joseph Gilbrook](https://www.linkedin.com/in/josephgilbrook/)
